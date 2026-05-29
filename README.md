@@ -1,4 +1,4 @@
-# GATE-inator
+# GATE-KEEPING😉😉
 resources that help me score 54.9 marks with few months of prep on my first attempt in gate cs 2026
 
 https://drive.google.com/drive/folders/1IAju9LgIF8gMtOL54ftmSYNbr8vxzHYC?usp=sharing
